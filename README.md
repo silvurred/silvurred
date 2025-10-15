@@ -1,6 +1,7 @@
 <div align="center">
 
-![image-062b-gradientmap pro](https://github.com/user-attachments/assets/0ebf929d-ab89-4934-a5c6-bbf698cd75e2)
+
+<img width="1280" height="365" alt="tumblr_68da491daddeb92d3e13d98d5b131233_d07c1d26_1280" src="https://github.com/user-attachments/assets/f7e07d60-11d3-43c0-bc23-615f3a2662b0" />
 
 
 **C**ㅤㅤ+ㅤㅤ**H**ㅤㅤㅤ**touch**ㅤㅤ**comf**
@@ -25,7 +26,7 @@ away = offtab / afk
 busy = dnd, only friends
 
 
-![image-d8cf-gradientmap pro](https://github.com/user-attachments/assets/7e164f51-a0a8-41bd-9771-146eb766df99)
+<img width="1280" height="372" alt="tumblr_f7350072069f8adad8fc5ebca0e22086_34f48336_1280" src="https://github.com/user-attachments/assets/69c348e3-602f-4163-b199-845bbc077f76" />
 
 
 </div>
