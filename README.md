@@ -1,16 +1,31 @@
-## Hi there 👋
+<div align="center">
 
-<!--
-**silvurred/silvurred** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+![image-062b-gradientmap pro](https://github.com/user-attachments/assets/0ebf929d-ab89-4934-a5c6-bbf698cd75e2)
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+**C**ㅤㅤ+ㅤㅤ**H**ㅤㅤㅤ**touch**ㅤㅤ**comf**
+
+
+**anyone**ㅤㅤ***can***ㅤㅤ**interact**.
+
+
+
+
+
+---
+
+
+
+
+
+away = offtab / afk
+
+
+
+busy = dnd, only friends
+
+
+![image-d8cf-gradientmap pro](https://github.com/user-attachments/assets/7e164f51-a0a8-41bd-9771-146eb766df99)
+
+
+</div>
