@@ -28,6 +28,6 @@ busy = dnd, only friends
 
 <img width="1280" height="372" alt="tumblr_f7350072069f8adad8fc5ebca0e22086_34f48336_1280" src="https://github.com/user-attachments/assets/69c348e3-602f-4163-b199-845bbc077f76" />
 
-i don't actually like mephilver
+i don't actually like mephilver, i only like it if it's prototype silver (veniles)
 
 </div>
