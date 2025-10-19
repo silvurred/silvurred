@@ -4,10 +4,10 @@
 <img width="1280" height="365" alt="tumblr_68da491daddeb92d3e13d98d5b131233_d07c1d26_1280" src="https://github.com/user-attachments/assets/f7e07d60-11d3-43c0-bc23-615f3a2662b0" />
 
 
-**C**ㅤㅤ+ㅤㅤ**H**ㅤㅤㅤ**touch**ㅤㅤ**comf**
+**C**ㅤㅤ+ㅤㅤ**H**ㅤㅤㅤ **touch** ㅤㅤ**comf**
 
 
-**anyone**ㅤㅤ***can***ㅤㅤ**interact**.
+**anyone** ㅤㅤ***can*** ㅤㅤ**interact**.
 
 
 
