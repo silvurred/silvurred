@@ -8,8 +8,6 @@
 
 ⠀
 
-⠀
-
 I'm a multi-shipper, anyone can interact! (except silvamy, i see them as siblings.)
 
 
