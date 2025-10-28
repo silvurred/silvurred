@@ -1,10 +1,10 @@
 <div align="center">
 
 
-<img width="2048" height="2048" alt="tumblr_b6d9834bda935d738d7998fb2c602caa_ccbedf21_2048" src="https://github.com/user-attachments/assets/71f50f73-be39-47f3-a677-e05d7ee33952" />
+<img width="1024" height="1024" alt="tumblr_b6d9834bda935d738d7998fb2c602caa_ccbedf21_2048" src="https://github.com/user-attachments/assets/71f50f73-be39-47f3-a677-e05d7ee33952" />
 
 
-<img width="2048" height="569" alt="tumblr_f9e48eef19691bf9eeb46418a0068780_acfd6468_2048" src="https://github.com/user-attachments/assets/7fb77401-8401-4515-a5de-6db28f21f13c" />
+<img width="1024" height="285" alt="tumblr_f9e48eef19691bf9eeb46418a0068780_acfd6468_2048" src="https://github.com/user-attachments/assets/7fb77401-8401-4515-a5de-6db28f21f13c" />
 
 
 
@@ -19,7 +19,7 @@ I'm very avoidant at first, so please make sure to start the conversation than m
 
 
 
-<img width="1280" height="365" alt="tumblr_68da491daddeb92d3e13d98d5b131233_d07c1d26_1280" src="https://github.com/user-attachments/assets/f7e07d60-11d3-43c0-bc23-615f3a2662b0" />
+<img width="640" height="182" alt="tumblr_68da491daddeb92d3e13d98d5b131233_d07c1d26_1280" src="https://github.com/user-attachments/assets/f7e07d60-11d3-43c0-bc23-615f3a2662b0" />
 
 
 
@@ -50,7 +50,7 @@ busy = dnd, only friends / sleeping
 
 
 
-<img width="1280" height="372" alt="tumblr_f7350072069f8adad8fc5ebca0e22086_34f48336_1280" src="https://github.com/user-attachments/assets/69c348e3-602f-4163-b199-845bbc077f76" />
+<img width="640" height="182" alt="tumblr_f7350072069f8adad8fc5ebca0e22086_34f48336_1280" src="https://github.com/user-attachments/assets/69c348e3-602f-4163-b199-845bbc077f76" />
 
 
 
@@ -59,13 +59,13 @@ busy = dnd, only friends / sleeping
 Please ask for inspiration! It's kind of obvious if you copy me.
 
 
-I HAVE A WIFE!!!!!!!!! A WIFE!!!!!!! 
+I have a lot of skins, so you'll see me using all of them 
 
 
 
 
 
-<img width="2048" height="539" alt="tumblr_525f5c9910c0458487e86a073a05fa08_cdf61301_2048" src="https://github.com/user-attachments/assets/c8c8a9c0-0022-40da-a915-998be25fd8cb" />
+<img width="1024" height="285" alt="tumblr_525f5c9910c0458487e86a073a05fa08_cdf61301_2048" src="https://github.com/user-attachments/assets/c8c8a9c0-0022-40da-a915-998be25fd8cb" />
 
 
 </div>
