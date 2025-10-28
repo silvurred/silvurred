@@ -13,7 +13,10 @@
 I'm a multi-shipper, anyone can interact! (except silvamy, i see them as siblings.)
 
 
-I'm very avoidant at first, so please make sure to start the conversation than me.
+I'm very avoidant at first, so please make sure to start the conversation.
+
+
+English is not my first language. I may be frequent, but that doesn't make me good at it.
 
 
 
@@ -56,10 +59,13 @@ busy = dnd, only friends / sleeping
 
 
 
-Please ask for inspiration! It's kind of obvious if you copy me.
+Please ask for inspiration! I won't call you out, but I would appreciate a heads up!
 
 
-I have a lot of skins, so you'll see me using all of them 
+You're egotistical if you think I copied you.
+
+
+I have a lot of skins, so you'll see me using all of them.
 
 
 
