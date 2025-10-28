@@ -8,7 +8,7 @@
 
 ⠀
 
-I'm a multi-shipper, anyone can interact! (except silvamy, i see them as siblings.)
+I'm a multi-shipper, idc much about ships (except silvamy, i see them as siblings.)
 
 
 I'm very avoidant at first, so please make sure to start the conversation.
