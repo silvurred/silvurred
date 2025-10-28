@@ -1,7 +1,28 @@
 <div align="center">
 
 
+<img width="2048" height="2048" alt="tumblr_b6d9834bda935d738d7998fb2c602caa_ccbedf21_2048" src="https://github.com/user-attachments/assets/71f50f73-be39-47f3-a677-e05d7ee33952" />
+
+
+<img width="2048" height="569" alt="tumblr_f9e48eef19691bf9eeb46418a0068780_acfd6468_2048" src="https://github.com/user-attachments/assets/7fb77401-8401-4515-a5de-6db28f21f13c" />
+
+
+
+
+
+I'm a multi-shipper, anyone can interact! (except silvamy, i see them as siblings.)
+
+
+I'm very avoidant at first, so please make sure to start the conversation than me.
+
+
+
+
+
 <img width="1280" height="365" alt="tumblr_68da491daddeb92d3e13d98d5b131233_d07c1d26_1280" src="https://github.com/user-attachments/assets/f7e07d60-11d3-43c0-bc23-615f3a2662b0" />
+
+
+
 
 
 **C**ㅤㅤ+ㅤㅤ**H**ㅤㅤㅤ **touch** ㅤㅤ**comf**
@@ -13,7 +34,7 @@
 
 
 
----
+<img width="101" height="57" alt="tumblr_42769f50aff5e1db0c91ab2c7ff3be26_d962a6cf_250" src="https://github.com/user-attachments/assets/aa9a6a43-45b3-46e2-bbc5-d04e1c35ce2a" /> <img width="101" height="57" alt="tumblr_9c41f2ebaa3d60ca41d9b4b514a9d73c_b8ed9a55_250" src="https://github.com/user-attachments/assets/e4c873a6-966d-4081-8347-92d9a563e4d8" /> <img width="101" height="57" alt="tumblr_d6f8b4bedce6c179c0d2501f75d28698_16cc0cd1_250" src="https://github.com/user-attachments/assets/2cbcb92f-cd3c-487b-94ab-471929e0c757" />
 
 
 
@@ -26,12 +47,25 @@ away = offtab / afk
 busy = dnd, only friends / sleeping
 
 
+
+
+
 <img width="1280" height="372" alt="tumblr_f7350072069f8adad8fc5ebca0e22086_34f48336_1280" src="https://github.com/user-attachments/assets/69c348e3-602f-4163-b199-845bbc077f76" />
 
-i don't actually like mephilver, i only like it if it's prototype silver (veniles)
 
 
-sorry silvamy shippers, i see them as siblings
+
+
+Please ask for inspiration! It's kind of obvious if you copy me.
+
+
+I HAVE A WIFE!!!!!!!!! A WIFE!!!!!!! 
+
+
+
+
+
+<img width="2048" height="539" alt="tumblr_525f5c9910c0458487e86a073a05fa08_cdf61301_2048" src="https://github.com/user-attachments/assets/c8c8a9c0-0022-40da-a915-998be25fd8cb" />
 
 
 </div>
