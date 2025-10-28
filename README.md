@@ -6,6 +6,7 @@
 
 <img width="384" height="129" alt="SBSilverLogoBackground" src="https://github.com/user-attachments/assets/5de44cdc-1b5a-4495-8593-aed037d1c984" />
 <img width="683" height="683" alt="tumblr_b6d9834bda935d738d7998fb2c602caa_ccbedf21_2048" src="https://github.com/user-attachments/assets/71f50f73-be39-47f3-a677-e05d7ee33952" />
+
 I'm a multi-shipper, anyone can interact! (except silvamy, i see them as siblings.)
 
 
