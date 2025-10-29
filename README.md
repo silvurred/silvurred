@@ -63,7 +63,7 @@ Please ask for inspiration! I won't call you out, but I would appreciate a heads
 You're egotistical if you think I copied you.
 
 
-DNI SARK COS/SUPS. EVEN THO HIS LORE CHANGED, IT DOESN'T CHANGE THE FACT THAT HIS STORY IS STILL WEIRD.
+DNI SARK COS/SUPS. THE STORY REWRITE DOESN'T MAKE IT LESS BAD.
 
 
 
