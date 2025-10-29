@@ -63,7 +63,7 @@ Please ask for inspiration! I won't call you out, but I would appreciate a heads
 You're egotistical if you think I copied you.
 
 
-I have a lot of skins, so you'll see me using all of them.
+DNI SARK COSPLAYERS/SUPPORTERS. EVEN THOUGH HIS LORE CHANGED, IT STILL DOESN'T CHANGE THE FACT THAT HIS STORY IS STILL A WEIRD.
 
 
 
