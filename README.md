@@ -17,6 +17,9 @@ I'm very avoidant at first, so please make sure to start the conversation.
 English is not my first language. I may be frequent, but that doesn't make me good at it.
 
 
+You will almost always see me with my wife
+
+
 
 
 
