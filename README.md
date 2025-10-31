@@ -66,9 +66,10 @@ Please ask for inspiration! I won't call you out, but I would appreciate a heads
 You're egotistical if you think I copied you.
 
 
-DNI SARK COS/SUPS. THE STORY REWRITE DOESN'T MAKE IT LESS BAD.
+DNI SARK COS. DNI DARKSHIPPERS. DNI FETISHIZERS. 
 
-DNI DARKSHIPPERS TOO AND PEOPLE THAT FETISHIZE SHIPS.
+
+***DNI PEOPLE WHO ARE NSFW IN SAFE SERVER.***
 
 
 
