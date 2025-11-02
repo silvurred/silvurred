@@ -66,7 +66,7 @@ Please ask for inspiration! I won't call you out, but I would appreciate a heads
 You're egotistical if you think I copied you.
 
 
-DNI SARK COS. DNI COMSHIPPERS. DNI FETISHIZERS. ***DNI PEOPLE WHO ARE NSFW IN SAFE SERVER.***
+DNI SARK COS. DNI COMSHIPPERS. DNI FETISHIZERS. ***DNI PEOPLE WHO ARE NSFW IN SAFE.***
 
 
 I follow back people whom I have interacted with before
